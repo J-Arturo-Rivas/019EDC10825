@@ -12,4 +12,4 @@ ESCUELA DE CODIGO PILARES COOPEREMOS PUEBLO GENERACION 08/25
 [SESION 5](https://www.canva.com/design/DAGxHwNrCBA/QSKK3DzWRE982IP6CsPhRw/edit?utm_content=DAGxHwNrCBA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 # RECURSOS ADICIONALES
-[PDF PENSAMIENTO COMPUTACIONAL] (https://www.canva.com/design/DAGxHy48yEE/yIRXH6x2VaiqH51FT3hnmA/edit?utm_content=DAGxHy48yEE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[PDF PENSAMIENTO COMPUTACIONAL](https://www.canva.com/design/DAGxHy48yEE/yIRXH6x2VaiqH51FT3hnmA/edit?utm_content=DAGxHy48yEE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
